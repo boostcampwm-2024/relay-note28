@@ -17,4 +17,5 @@
 
 
 그리고 무엇보다 중요한 것은… 꺾이지 않는 마음!
+
 ![부스트캠프 웹·모바일 회의실 28 2024-07-19 03_26 PM_selection- 1721370942490](https://github.com/user-attachments/assets/7cb86ef6-a618-49cd-84d8-fdf5b5625b95)
